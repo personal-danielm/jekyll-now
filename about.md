@@ -6,7 +6,7 @@ permalink: /about/
 
 New to blogging not sure what I want to put here. 50 years old and still trying to find my way. Had some successes and many failures. Diagnosed with more than 1 mental health issue but the predominate ones are depression and cPTSD. 
 
-This blog will not be for the faint of heart, I'm open about my past and how I'm living/struggling today. This hopefully will be cathartic for me and allow me to process stuff that's been haunting me for years. 
+This blog will be about my struggles to get back to a place I found a few years ago where exercise, healthy eating, a building on successes had brought me to a place where my mental health wasn't a curse but something to be aware of, where it no longer held me back but was something I pushed through and where I was opening and actively trying to find an build relationships with people.
 
 ### More Information
 
